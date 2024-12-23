@@ -4,5 +4,4 @@
 
 ![.](https://64.media.tumblr.com/7a5b1592b9b02d9739e6292c062530b9/083abcd32d80d867-38/s640x960/8660dab1e29ac5e601c8b47910b2c30d468c1cbf.jpg)
 
-huge wip srry lol
 i love emesis blue and freak fortress feel free to talk about those wit me 👍
